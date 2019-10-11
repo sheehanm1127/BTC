@@ -1,1 +1,1 @@
-# BTC
+# Merit Badges
